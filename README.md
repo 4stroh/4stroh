@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @4stroh
-- I am a student at UWF.
+- I am a graduate of UWF.
 - This profile was made for a course there,
 - But I hope to use it for more than that.
 - 📫 How to reach me ... 4stroh@gmail.com
